@@ -1,0 +1,2 @@
+# zoom
+https://discord.com/api/webhooks/818676293360943104/Kj92TRptZtKsQox2kOUiaIFIxd8huesXg_ffTnd6eHSIhpJwkB9uUD4I1zmy39CZ38C4
